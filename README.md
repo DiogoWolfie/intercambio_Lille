@@ -1,1 +1,4 @@
 # Diogo No Intercâmbio
+
+Olá! Me chamo Diogo Lobo, sou de Fortaleza, no Ceará, tenho 25 anos e atualmente estou no oitavo semestre de engenharia da computação no Insper. Fui aprovado no processo seletivo para fazer um intercâmbio na cidade de Lille, na França, na Universidade Junia, durante o segundo semestre de 2025.
+Como bolsista integral no Insper, todos os custos referentes a universidade já estão cobertos. Todavia, ainda precisarei custear despesas como moradia, alimentação, passagem aérea, seguro saúde e visto. Por isso, criei essa campanha de arrecadação para tornar esse sonho possível !!!
